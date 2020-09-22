@@ -6,3 +6,7 @@ September 22, 2020, Changwoo Park doesn't log out his account in 10th Computer R
 
 **로그아웃을 생활화합시다**
 **Please Log out!**
+
+![](https://golden-goblin.com/content-thief/wp-content/uploads/sites/5/kboard_attached/1/202007/5f15563f5ef8f4299349.jpg)
+
+다음엔 안 봐준다...
